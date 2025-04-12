@@ -79,7 +79,7 @@ Certified in **mutual funds** and **equity derivatives**, I integrate academic l
 ## 🌍 Social Impact
 
 ### 🟢 Robin Hood Army *(Jun 2022 – Present)*  
-[![Robin Hood Army Logo](https://upload.wikimedia.org/wikipedia/en/3/3e/Robin_Hood_Army_Logo.png)](https://robinhoodarmy.com)  
+[![Robin Hood Army Logo](https://tse2.mm.bing.net/th?id=OIP.BPxPlyCbDVn7aFlPc2nVKgHaHa&pid=Api&P=0&h=180)](https://robinhoodarmy.com)  
 - Active volunteer in food distribution drives  
 - Team building, leadership, and local chapter management  
 - Coordinated partnerships and outreach programs  
